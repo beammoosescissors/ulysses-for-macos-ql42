@@ -1,4 +1,4 @@
-
+instant Ulysses for macOS Addon | widgets + quick search offers the most advanced Ulysses for macOS addon, with widgets and quick search. Ideal for professionals.
 
 
 
